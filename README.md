@@ -8,3 +8,4 @@ https://www.ispsn.org/sites/default/files/documentos-virtuais/pdf/livrosparatodo
 https://showcommerce-files.net.br/arquivos/1534781432os_4_compromissos.pdf
 https://olhenovamente.com.br/fullmetal-alchemist-religiao-ciencia/#google_vignette
 https://www.camarademonteiro.pb.gov.br/storage/content/publicacoes/livros-digitais/2444/arquivos/file_202206030909IyiR.pdf
+https://www.epedagogia.com.br/materialbibliotecaonine/630O-Caibalion.pdf
